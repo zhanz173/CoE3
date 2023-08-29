@@ -1,1 +1,1 @@
-Courses works and projects from 3rd year
+School projects and course-related works from my 3rd year
